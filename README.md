@@ -1,4 +1,4 @@
-## Hi there 👋
+![image](https://files.catbox.moe/g094e6.jpeg)
 
 <!--
 **skibidbanhammer/skibidbanhammer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
