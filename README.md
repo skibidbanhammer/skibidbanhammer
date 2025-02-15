@@ -1,2 +1,1 @@
-![image](https://img1.picmix.com/output/pic/normal/1/0/9/7/12397901_41626.gif)
-<img src="https://img1.picmix.com/output/pic/normal/2/6/5/2/12152562_67f21.gif" width="495" height="495">
+<img src="https://img1.picmix.com/output/pic/normal/1/0/9/7/12397901_41626.gif" width="300" height="300"> <img src="https://img1.picmix.com/output/pic/normal/2/6/5/2/12152562_67f21.gif" width="300" height="300">
