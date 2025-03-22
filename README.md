@@ -1,4 +1,3 @@
 <img src="https://img1.picmix.com/output/pic/normal/1/0/9/7/12397901_41626.gif" width="400" height="400"> <img src="https://img1.picmix.com/output/pic/normal/2/6/5/2/12152562_67f21.gif" width="400" height="400">
 <img src="https://files.catbox.moe/gts5hj.png" width="400" height="300"><img src="https://files.catbox.moe/to1xi2.png" width="400" height="300">
 
-<img src="https://files.catbox.moe/v64z48.jpeg" width="500" height="500"> HEY GUYS CHECK OUT MY HORRID DRAWİNG:3 (ı just created a pinterest acc to post ıt)
