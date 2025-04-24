@@ -2,4 +2,4 @@
 <img src="https://files.catbox.moe/gts5hj.png" width="400" height="300"><img src="https://files.catbox.moe/mtqbw2.jpg" width="400" height="300">
 ![image](https://files.catbox.moe/s4ae74.jpg)
 ![image](https://files.catbox.moe/862zzi.jpeg)
-![image](https://files.catbox.moe/kl699g.jpg) ![image](https://files.catbox.moe/dzn6ut.png)
+![image](https://files.catbox.moe/kl699g.jpg) 
