@@ -3,4 +3,4 @@
 ![image](https://files.catbox.moe/s4ae74.jpg)
 ![image](https://files.catbox.moe/862zzi.jpeg)
 ![image](https://files.catbox.moe/kl699g.jpg) 
-![image](https://files.catbox.moe/540198.jpg) full of joy and whımsy
+![image](https://files.catbox.moe/wmnauu.png) full of joy and whımsy
