@@ -1,2 +1,2 @@
-![](https://files.catbox.moe/vpd9cc.png)
-art credits to irontomb and Zou0_0 on artfight ^_^
+![](https://file.garden/aoG8TxzWHEmpGjug/9448%20(1).png)
+art credits to sylvie-bella-2 on tumblr!! AND credits to @THE-ARCHPRIEST for the graphs! :-]
