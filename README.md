@@ -1,3 +1,1 @@
-![](https://file.garden/aoG8TxzWHEmpGjug/9448%20(1).png)
-
-art credits to sylvie-bella-2 on tumblr!! AND credits to @THE-ARCHPRIEST for the graphs! :-]
+ㅤㅤㅤㅤㅤㅤㅤ![](https://i.ibb.co/BHvgn59r/Untitled176-20261116194321.png)
