@@ -1,2 +1,2 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Zeyada&size=30&pause=1000&color=30A2B3&multiline=true&width=500&height=100&lines=Do+you+believe+in+love+at+first+sight+%3F;Do+you+believe+in+fate+%3F)](https://git.io/typing-svg)
+ㅤㅤ ㅤ[![Typing SVG](https://readme-typing-svg.demolab.com?font=Zeyada&size=40&pause=1000&color=288896&multiline=true&width=500&height=100&lines=Do+you+believe+in+love+at+first+sight+%3F;Do+you+believe+in+fate+%3F)](https://git.io/typing-svg)
 ㅤㅤ ㅤㅤㅤㅤㅤ![](https://i.ibb.co/BHvgn59r/Untitled176-20261116194321.png)
